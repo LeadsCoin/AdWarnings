@@ -7,11 +7,10 @@ https://www.bbb.org/us/tn/memphis/profile/auto-repair/diesel-care-performance-in
 
 ### inspire. from: https://www.ford-trucks.com/forums/1359495-parts-vendors-the-good-the-bad-and-the-ugly.html
 
-https://www.ford-trucks.com/forums/1359495-parts-vendors-the-good-the-bad-and-the-ugly.html#post15050458
-
 Quote:
 >02-02-2015, 03:06 PM
 >Chevy_Eater
 >Diesel Care Products (DCP): Very bad reputation and an "F" rating from the Better Business Bureau to boot!
 >
 >http://www.bbb.org/memphis/business-...on-tn-44022196
+—https://www.ford-trucks.com/forums/1359495-parts-vendors-the-good-the-bad-and-the-ugly.html#post15050458
